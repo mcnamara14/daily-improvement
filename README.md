@@ -1,1 +1,3 @@
-# daily-improvement
+# Daily Goals
+
+## Aug 6th
